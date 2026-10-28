@@ -1,2 +1,3 @@
 # POWER_BI_AND_DATA_ANALITCSE_INTRESHIP_CERTIFICATE
 DATA_ANALIST_OF_POWER_BO
+🚀 Excited to share my latest achievement!Maine Datheon (AI Systems & Automation Studio) se Data Analytics & Power BI Internship successfully complete kar li hai!   Is 4-weeks ki journey ke dauran maine data cleaning, transformation, aur interactive dashboards banane ke core concepts seekhe hain jo raw data ko meaningful business insights me convert karte hain.   🪪 Certificate ID: CERT-DT-2026-LQTVU   Learning aur data analytics ki is journey me aage badhne ke liye main taiyar hoon!#DataAnalytics #PowerBI #Datheon #Internship #DataVisualization #ContinuousLearning
